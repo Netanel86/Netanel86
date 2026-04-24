@@ -97,7 +97,9 @@ I’m especially interested in roles involving:
 ## Contact
 
 📧 [iting86@gmail.com](mailto:iting86@gmail.com)
+
 🔗 LinkedIn: [https://www.linkedin.com/in/netanel-iting-40898112](https://www.linkedin.com/in/netanel-iting-40898112)
+
 💻 GitHub: [https://github.com/Netanel86](https://github.com/Netanel86)
 
 ---
